@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Dimitrije
-- 👀 Passionate about game development, especially for GTA V roleplay servers
 - 📫 Reach me on Discord: .dimitriy.
